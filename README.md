@@ -9,11 +9,10 @@ Our goal is to build a community in the MPH program and greater CUMC student bod
 
 Logistics
 ----------
-These are weekly sessions on Tuesdays from 11.30am - 1.30pm
-The first session is on Tuesday, March 10th
-This event series is sponsored by CSAPH
-Coffee and snacks will be served
-Location TBD
+- Tuesdays from 11.30am - 1.30pm
+- The first session is on Tuesday, March 10th
+- Coffee and snacks will be served
+- Location TBD
 
 Details
 ----------
